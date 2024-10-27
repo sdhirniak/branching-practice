@@ -12,4 +12,4 @@ does this work
 - Team Member 2:
 
 
-- Team Member 3:
+- Team Member 3: janice jhang's additions
